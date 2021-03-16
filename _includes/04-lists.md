@@ -1,0 +1,4 @@
+* Diving
+* Music 
+* Beer
+* Running
